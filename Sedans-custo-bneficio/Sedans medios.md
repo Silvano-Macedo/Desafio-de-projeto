@@ -1,4 +1,4 @@
-# Sedans médios com melhor custo benefício em 2022 🚗
+# Sedans médios com melhor custo benefício 🚗
 
 ## Levando em consideração o uso de carros automático topo de linha, a disputa será entre FIAT,GM e Hyundai :
 
